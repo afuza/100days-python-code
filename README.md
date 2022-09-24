@@ -9,4 +9,4 @@
 - 👨🏻‍🔬 I’m looking for a software development internship.
 - 👨🏻‍💻 How to reach me: [Linkedin](linkedin.com/in/afuzapratama/) [Gmail](mailto:bitasatu@gmail.com)
 
-Waiting me on 100 days i can make somting special 
+Waiting me on 100 days i can make something special 
